@@ -6,7 +6,6 @@ meu nome é lendon camara furquim
 
 - ### Você entrar em contato comigo 📧
 Lendoncamara2@gmail.com
-
 instagram:@lendonfurquim__
 ![](https://media.tenor.com/3wen1lf5mK8AAAAM/dragon-ball-z-goku.gif)
 
